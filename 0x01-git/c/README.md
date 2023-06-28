@@ -1,1 +1,1 @@
-stage one is important
+humanity is greater
