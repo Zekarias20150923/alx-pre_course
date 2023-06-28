@@ -1,1 +1,1 @@
-stage are important
+stage is important
