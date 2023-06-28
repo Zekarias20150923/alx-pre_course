@@ -1,1 +1,1 @@
-stage one is the most important stage
+stage one is important
