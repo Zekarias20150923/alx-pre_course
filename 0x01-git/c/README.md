@@ -1,1 +1,1 @@
-humanity is greater
+humanity is greatest
